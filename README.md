@@ -1,0 +1,1 @@
+# app_renta_indirecta_GS
